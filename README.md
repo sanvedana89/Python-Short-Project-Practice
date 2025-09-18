@@ -1,1 +1,1 @@
-Pthon Development Intern  Remote Intenship CognifyzPy
+Pthon Development Intern  Remote Intenship Cognifyz
